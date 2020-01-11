@@ -1,2 +1,2 @@
 # signlight
-Resources on.systematic cultivation of concentration and wisdom
+Resources on systematic cultivation of concentration and wisdom
